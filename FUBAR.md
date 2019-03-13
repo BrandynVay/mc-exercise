@@ -9,3 +9,5 @@ What do you call a no-legged dog?
 Doesn't matter, he ain't coming :(
 
 See the problem is, god gives men a brain and a penis and only enough blood to run one at a time.
+
+What do you call a fish with no eyes? ......... Fsh.
